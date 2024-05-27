@@ -1,4 +1,4 @@
-## Hi Ayanokoji 👋
+## oi me chamo Ayanokoji 👋
 00001095269864sp@aluno.educacao.sp.gov.br
 _Salve galera d boa
 "Estou desenvolvendo uma linguagem jevescript'🖤
